@@ -27,9 +27,8 @@ https://brianstormcrime.webnode.pt/l/gary-ridgway/
 
 https://www.nbcnews.com/news/us-news/gary-ridgway-green-river-serial-killer-washington-rcna67794
 
-*
-*
 
-AMAZON:
+
+# AMAZON:
 
 O Assassino do Rio Green
