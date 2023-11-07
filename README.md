@@ -1,4 +1,4 @@
-# Gary-Ridgway
+# Gary-Ridgway, the Green River
 Canal Colecionador de Ossos
 
 # Fontes e Referências da matéria:
